@@ -1,3 +1,3 @@
 # Jupiter LiftTime Free Credit Card link
 
-Use the below link to download the app http://jptr.onelink.me/TOMp/fb641b4005 and apply the exclusive referral code qANIUx
+Use the below link to download the app https://jptr.onelink.me/TOMp/3c807f8ca8 and apply the exclusive referral code s37MwO
